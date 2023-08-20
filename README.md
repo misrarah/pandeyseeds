@@ -1,6 +1,3 @@
-# Welcome to Pandey Seeds
-
-
 This website is under construction. Please check back soon.
 
 Direct all business queries to pandeyseed@yahoo.co.in
